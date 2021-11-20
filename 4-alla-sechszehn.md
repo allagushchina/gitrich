@@ -11,3 +11,7 @@ Ich hab' Geld geerbt
 Du hast Eis bestellt
 Wir haben uns kennengelernt
 Bei Giovanni
+Du hast gelernt *(yo)*
+Damals im Kik *(yo)*
+Wie es ist *(yo)*
+Wenn man kein Geld hat
